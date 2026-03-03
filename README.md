@@ -1,2 +1,2 @@
 Sou o Davi Natal, tenho 15 anos. Gosto de programação, estou em um projeto construindo um jogo de fps do 0, desde 2023. 
-![(<div class="tenor-gif-embed" data-postid="1464892336843064482" data-share-method="host" data-aspect-ratio="1.07792" data-width="100%"><a href="https://tenor.com/view/sabrina-carpenter-gif-1464892336843064482">Sabrina Carpenter Meme</a>from <a href="https://tenor.com/search/sabrina+carpenter-memes">Sabrina Carpenter Memes</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>)]
+![](https://media1.tenor.com/m/FFRX0au5BKIAAAAC/sabrina-carpenter.gif)
