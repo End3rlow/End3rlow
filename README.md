@@ -5,4 +5,4 @@ Sou o Davi Natal, tenho 15 anos. Gosto de programação, estou em um projeto con
 - Curso técnico ADS. (2/3)
 - Curso de gamificação. (2/2)
   
-![](<https://tenor.com/pt-BR/view/real-men-listen-to-sabrina-gif-1137956216907162135)
+![](https://tenor.com/pt-BR/view/real-men-listen-to-sabrina-gif-1137956216907162135)
