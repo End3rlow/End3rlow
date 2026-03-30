@@ -1,5 +1,4 @@
-Sou o Davi Natal, tenho 15 anos. Gosto de programação, estou em um projeto construindo um jogo de fps do 0, desde 2023. 
-
+Sou o Davi Natal, tenho 15 anos. Gosto de programação, músicas, tocar violão e guitarra, videogames, som, luz e da Sabrina Carpenter.
 - Estudante, iniciante na programação
 - Curso de T.I básico. (1/1)
 - Curso técnico ADS. (2/3)
