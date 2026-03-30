@@ -5,4 +5,4 @@ Sou o Davi Natal, tenho 15 anos. Gosto de programação, estou em um projeto con
 - Curso técnico ADS. (2/3)
 - Curso de gamificação. (2/2)
   
-![](https://media1.tenor.com/m/FFRX0au5BKIAAAAC/sabrina-carpenter.gif)
+![](https://www.facebook.com/groups/mainpopgirls/posts/1188551942463924/)
