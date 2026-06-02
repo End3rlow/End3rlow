@@ -1,5 +1,5 @@
-Sou o Davi Natal, tenho 16 anos. Playboy, magnáta e filantropo.
-- Estudante, iniciante na programação
+Sou o Davi Natal, tenho 16 anos. Meu sonho é criar meu próprio jogo no estilo "Soulslike", inspirado em Fallen Order e Survivor.
+- Estudante, iniciante na programação.
 - Curso de T.I básico. (1/1)
 - Curso técnico ADS. (2/3)
 - Curso de gamificação. (2/2)
