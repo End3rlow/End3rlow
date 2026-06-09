@@ -4,7 +4,7 @@ Sou o Davi Natal, tenho 16 anos. Meu sonho é criar meu próprio jogo no estilo 
 - Curso técnico ADS. (2/3)
 - Curso de gamificação. (2/2)
 
-" You're only truly happy if you know what it feels like to play on Kashyyyk in Jedi Fallen Order."
+
   
 ![](https://media1.tenor.com/m/D8rVJm6y4hcAAAAC/real-men-listen-to-sabrina.gif)
 ![](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcT-Rd7TxFBf5fIY7P6xqHv6-DlcB8GnE4fo1w&s)
