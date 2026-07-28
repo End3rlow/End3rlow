@@ -1,4 +1,4 @@
-Sou o Davi Natal, tenho 16 anos. Meu sonho é criar meu próprio jogo no estilo "Soulslike", inspirado em Fallen Order e Survivor.
+Sou o Davi Natal, tenho 16 anos. Futuro developer
 - Estudante, iniciante na programação.
 - Curso de T.I básico. (1/1)
 - Curso técnico ADS. (2/3)
