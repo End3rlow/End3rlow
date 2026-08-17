@@ -6,4 +6,3 @@ Sou o Davi Natal, tenho 16 anos. Futuro developer
 
 
   
-![](https://media1.tenor.com/m/D8rVJm6y4hcAAAAC/real-men-listen-to-sabrina.gif)
