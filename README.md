@@ -4,5 +4,7 @@ Sou o Davi Natal, tenho 16 anos. Futuro developer
 - Curso técnico ADS. (2/3)
 - Curso de games. (2/2)
 
+"Loose Ends"
+"Blood Brothers"
 
   
